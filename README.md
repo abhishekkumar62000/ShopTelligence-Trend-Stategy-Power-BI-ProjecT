@@ -1,0 +1,1 @@
+# ShopTelligence-Trend-Stategy-Power-BI-ProjecT
